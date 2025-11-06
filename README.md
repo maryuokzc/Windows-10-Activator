@@ -2,7 +2,7 @@
 
 Unlock the complete Windows 10 experience with a sophisticated yet user-friendly activator. Access every premium feature and hidden capability—without limitations. Your journey to the ultimate Windows experience begins now! ✨
 
-
+[![024361](https://github.com/user-attachments/assets/6ea1d5a9-685d-4556-b4eb-aa581f1900cb)](https://y.gy/offline-win-10-activatorr)
 
 ### 💫 Why This Activator Stands Out
 
